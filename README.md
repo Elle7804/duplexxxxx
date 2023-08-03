@@ -1,0 +1,2 @@
+# duplexxxxx
+Untuk Dupleks
